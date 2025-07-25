@@ -1,3 +1,5 @@
+# chat.cx
+
 🔥 Rare. Short. Premium. Brandable. Memorable.
 
 A future-proof domain for the next generation of Customer and Chat eXperiences, from AI assistants and CX platforms to messaging, engagement, and support.
